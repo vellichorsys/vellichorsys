@@ -1,11 +1,16 @@
 The Doctor | they/he/it | Adult
 
-Plural, otherkin, fictionkin, furry.
+Not a big talker, more of a people watcher and occasional jokester. I don't roleplay "seriously" or anything. Love to make fan ponies and crack jokes in character sometimes but that's kinda it. I'm silly once you get me yapping.
 
-Not a big talker, more of a people watcher and occasional jokester. I don't roleplay or anything. Love to make fan ponies tho!
+OTHERKIN
+I'm otherkin. I'm more of the spiritual variety, and it's not a "for fun" thing for me. My kintypes are The Doctor (Doctor Who Fictionkin), dragon, and werewolf. 
 
-I'm a spiritual otherkin and don't really vibe with the "kinning for fun" crowd. You do you, but I'm pretty serious serious my identity and we probably won't have a lot in common. It's not really fun for me. Species dysphoria and nightmares and whatnot.
+PLURALITY
+I'm plural. I prefer not to disclose my mental health status beyond that and I cannot possibly care less about any flavor of "syscourse."
 
-I am plural. Our origins are our business and our business alone. We refuse to engage in syscourse or with people who waste their time and energy on it. You'd do well to do the same. Your mental health will thank you. So will everyone else's.
+SOME NOTES
+I don't waste time with the majority of online discourse. I don't care how other people identify or why they identify that way. It's not my business, or anyone else's. So I don't waste my time with things like system discourse, otherkin discourse, queer infighting, etc. My recommendation would be for you to care less about things that don't actually affect you - it's freeing.
 
-All that aside, I'm friendly, just pretty quiet. Have a great day!
+I don't put all that much effort into my pony designs. I'm not fussed about shading and custom outlines or "looking good." I'm here to be silly, not to win a popularity or costume contest. If you're giving me grief for "low effort skins" I'm just gonna block you without a response, and you're gonna end up going right back to being bored. :>
+
+Regarding my Doctor kintype; please refrain from trying to quiz me, or trying to poke fun at sensitive spots (i.e, jokes about Rose Tyler). It's inconsiderate and I won't want to talk to you anymore.
